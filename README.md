@@ -1,0 +1,1 @@
+This repository contains my latest resume highlighting my skills, experience, and key projects. You can easily view or download it here. I welcome connections for collaboration, job opportunities, or feedback!
